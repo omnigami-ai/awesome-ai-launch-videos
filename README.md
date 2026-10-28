@@ -145,8 +145,7 @@ Make one like it: [Product film](https://omnigami.ai/skills/product-film)
 
 Big Arabic type in a tall frame, a phone showing a lesson with code, a learner leaderboard and an app icon reveal.
 
-Video by [@YarHmm](https://x.com/YarHmm/status/2103505435802341449) · 56 s · 9:16  
-Make one like it: [App Store preview](https://omnigami.ai/skills/app-store-preview)
+Video by [@YarHmm](https://x.com/YarHmm/status/2103505435802341449) · 56 s · 9:16
 
 ### [Dub link-attribution platform promo](https://omnigami.ai/gallery/dub-link-attribution-platform-promo)
 
@@ -207,8 +206,7 @@ Make one like it: [Cutout film](https://omnigami.ai/skills/cutout-film)
 
 A tall cartoon promo for a love-notes app: a cat waits at a mailbox until a pig sends notes that pile up, then a heart, the app's logo and an App Store button.
 
-Video by [@jackfriks](https://x.com/jackfriks/status/2103132260589338762) · 20 s · 9:16  
-Make one like it: [App Store preview](https://omnigami.ai/skills/app-store-preview)
+Video by [@jackfriks](https://x.com/jackfriks/status/2103132260589338762) · 20 s · 9:16
 
 ### [Strino music recognition app promo](https://omnigami.ai/gallery/strino-music-recognition-app-promo)
 
@@ -216,8 +214,7 @@ Make one like it: [App Store preview](https://omnigami.ai/skills/app-store-previ
 
 A tall Portuguese promo for a song and chord recognition app: sound rings, a search bar, a phone that listens, identifies a song and shows its key, tempo and chords with callouts, ending on the logo, a rating and a download button.
 
-Video by [@wallacex227](https://x.com/wallacex227/status/2103245000989659422) · 20 s · 9:16  
-Make one like it: [App Store preview](https://omnigami.ai/skills/app-store-preview)
+Video by [@wallacex227](https://x.com/wallacex227/status/2103245000989659422) · 20 s · 9:16
 
 ### [Inference startup launch film](https://omnigami.ai/gallery/inference-startup-launch-film)
 
