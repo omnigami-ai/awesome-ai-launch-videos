@@ -23,8 +23,7 @@ Video by [@LexnLin](https://x.com/LexnLin/status/2110878517197975717) · 22 s ·
 
 A camera glides down a landing page lying flat in a bright studio, cards and photos lifting toward the lens, then dives back to the hero under a two-line title.
 
-Video by [@twoclipping](https://x.com/twoclipping/status/2110329502676951367) · 15 s · 5:4 · prompt on [its page](https://omnigami.ai/gallery/prompt-site-landing-page-3d-fly-over)  
-Make one like it: [Unfold](https://omnigami.ai/skills/unfold)
+Video by [@twoclipping](https://x.com/twoclipping/status/2110329502676951367) · 15 s · 5:4 · prompt on [its page](https://omnigami.ai/gallery/prompt-site-landing-page-3d-fly-over)
 
 ### [tilt AI claims-dispute app launch film](https://omnigami.ai/gallery/tilt-ai-claims-dispute-app-launch-film)
 
